@@ -1,4 +1,6 @@
 !xyrien <3
 
-telegram: coiscinsasana | discord: xyrilovesyani
-proverbs 1:7
+telegram: coiscinsasana | discord: tsukimikichiyou
+proverbs 1:7 
+
+🇮🇩☦️🤍🥊💻
